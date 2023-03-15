@@ -1,2 +1,1 @@
-# Aurees-Tiles
-Tiles Factory
+Aurees <a href="https://aureestiles.com.au/">tiles Adelaide</a> is your one stop shop for all your tiling needs. We stock more than 500 varieties of tiles and our team specialises in helping customers choose the option that suits their home and needs.
